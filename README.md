@@ -1,5 +1,3 @@
 Colton Williams
-
 Senior Software Engineer
-
-ITS / Airport Operations
+E-Commerce / Merch

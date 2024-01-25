@@ -1,5 +1,5 @@
 Colton Williams
 
-Senior Software Engineer
+Principal Software Engineer
 
 E-Commerce / Merch
